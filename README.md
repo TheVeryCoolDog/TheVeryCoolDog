@@ -1,5 +1,4 @@
 - I’m @TheVeryCoolDog
-- A Dog
 - at sub-zero temps
 
 - I don't know what i'm doing
